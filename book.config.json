@@ -1,0 +1,21 @@
+{
+  "title": "Midnight at the Crossroads",
+  "subtitle": "A Novel",
+  "genre": "Romantic comedy",
+  "author": "Walusimbi Leon",
+  "description": "Two strangers keep meeting at the same all-night bus station \u2014 always at midnight, always missing each other \u2014 until one night the timetable changes.",
+  "style": "Witty, warm first-person alternating viewpoints. Banter-heavy, hopeful, cinematic.",
+  "characters": "Jo \u2014 night-shift nurse, sarcastic, soft; Bayo \u2014 musician, late for everything, honest.",
+  "setting": "A 24-hour bus station in a restless city, present day.",
+  "notes": "Open at 00:00 with Jo missing the bus and meeting Bayo for the first time (again). Spark, misunderstanding, promise of return.",
+  "chapterTitle": "Chapter",
+  "mdFiles": [
+    "v2.0/book.md"
+  ],
+  "htmlFiles": [
+    "v2.0/book.html"
+  ],
+  "indexInject": null,
+  "mdHeadingLevel": 3,
+  "targetWords": 2000
+}
