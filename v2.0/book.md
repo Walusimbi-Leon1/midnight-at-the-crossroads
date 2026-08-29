@@ -254,6 +254,188 @@ The bus pulled away, and I watched the bus station shrink in the window, and I t
 
 I was wrong.
 
+### Chapter 3 — The 4:35
+
+The thing about being a night-shift nurse is that you develop an intimate relationship with the concept of *not sleeping*. You learn the exact hour when your body gives up on the idea of rest and settles instead for a kind of low-grade buzzing existence, powered by caffeine and spite. The bus ride home was forty-seven minutes of that buzzing, my forehead pressed against the cold window, the city sliding past in smears of grey and sodium orange.
+
+I should have been thinking about my bed. I should have been thinking about the shift ahead, about Mrs. Okafor's medications, about the new admit who'd come in at 2 a.m. with a chest infection and a fear of needles. Instead, I was thinking about a man with a battered guitar and a terrible taste in vending machine beverages, and the way his fingers had moved over the strings like they were having a conversation I wasn't quite fluent in yet.
+
+I was thinking about the fact that he'd said *"See you, Jo"* like it was a promise, not a farewell.
+
+I fell asleep somewhere around the ring road and woke up at my stop with a crick in my neck and the faint impression of a melody I couldn't quite remember.
+
+---
+
+The next night, I told myself I wasn't going to the bus station.
+
+I told myself this at 10 p.m., while I was eating a sad microwave dinner and staring at the wall. I told myself again at 11:15, while I was brushing my teeth and avoiding my own reflection. I told myself at 11:40, while I was putting on my jacket and grabbing my keys.
+
+At 11:52, I was standing on the platform, watching the digital clock tick toward midnight, and I was telling myself that I was here for the coffee.
+
+The vending machine was still humming its sad little hum. The security guard—Gerald, I knew his name now, a small piece of trivia that felt like a secret—was doing his rounds, his torch beam sweeping across the empty platforms. The air smelled like diesel and rain and the particular loneliness of a place where people only ever pass through.
+
+I bought a coffee. I sat on a bench. I waited.
+
+At 00:00, the clock ticked over, and the bus I was supposed to be on—the one I'd missed last night—pulled in, disgorged a handful of sleepy passengers, and pulled out again.
+
+No Bayo.
+
+I told myself I wasn't disappointed. I told myself I was just enjoying the quiet. I told myself a lot of things, and I believed none of them.
+
+At 00:12, the doors to the waiting area swung open, and a man walked in carrying a guitar case.
+
+He looked different in the harsh fluorescent light. Less like a character in a story, more like a person—a real person, with tired eyes and a bruised knuckle on his left hand and hair that looked like he'd been running his fingers through it for hours. He was wearing the same jacket as last night, a battered denim thing with a frayed collar, and he was holding a plastic cup of what I assumed was the same terrible coffee.
+
+He stopped when he saw me.
+
+For a moment, neither of us moved. The vending machine hummed. Gerald's torch swept across the far platform. Somewhere in the distance, a train announced its arrival in that bored voice.
+
+"You're here," Bayo said.
+
+"I'm here," I agreed.
+
+"I missed my bus."
+
+"You're chronically late. I'm not surprised."
+
+He grinned, and it was the same easy grin from last night, but there was something underneath it now—something uncertain, almost shy. "I didn't miss it, actually. I just didn't get on it."
+
+"Why not?"
+
+He walked over and sat down on the bench next to me, setting his guitar case on the ground between us. "I was thinking about what you said."
+
+"What did I say?"
+
+"You said nobody was waiting for you." He looked at me, and in the dim light, his eyes were impossibly dark and warm. "I wanted to be somebody waiting for you."
+
+I opened my mouth to say something—I don't know what, something sharp and defensive, something that would protect me from the sheer audacity of a man saying something like that with a straight face—but what came out instead was: "That's the second most romantic thing anyone's ever said to me about a transportation mishap."
+
+"What's the first?"
+
+"You said it last night."
+
+He laughed, and the sound of it filled the empty waiting area like light. "So I've got a two-for-one deal going. I should write that down."
+
+"Don't quit your day job."
+
+"I don't have a day job."
+
+"Then don't quit your night job either."
+
+We sat there for a moment, the silence between us comfortable and charged at the same time. The clock ticked. The vending machine hummed. Something felt different about this night, and I couldn't quite put my finger on what.
+
+"You know," Bayo said, "I had a whole thing planned."
+
+"A whole thing?"
+
+"A speech. I practiced it on the bus over." He gestured vaguely toward the doors. "Something about destiny and timetables and the universe conspiring to bring two chronically unlucky people together at the exact same moment."
+
+"That sounds terrible."
+
+"It was. I'm glad I forgot it."
+
+"Did you forget it?"
+
+He looked at me, and there was something in his expression that made my chest ache. "No," he said. "I just realized it wasn't true."
+
+"What's true, then?"
+
+He was quiet for a long moment. The clock ticked. The vending machine hummed. The world outside the grimy windows continued to turn, indifferent to the two of us sitting in the fluorescent glow of a place where nobody stayed.
+
+"The truth is," he said finally, "I don't know why I came here tonight. I just knew I had to. I knew that if I didn't, I'd spend the rest of my life wondering what would have happened if I had."
+
+"That's a lot of pressure for a bus station."
+
+"It's not the bus station," he said. "It's you."
+
+And there it was again—that feeling, like the ground had shifted slightly beneath me, like I was standing on a platform that was about to move.
+
+I looked at him. He looked at me. The vending machine hummed its sad little hum.
+
+"So," I said, "do you have your guitar?"
+
+He blinked, thrown by the abrupt change in subject. "Yeah. Why?"
+
+"Play for me."
+
+"Right now?"
+
+"Right now. You've got four hours. Show me what you've got."
+
+He laughed, shaking his head, but he was already reaching for his case. "You know, most people ask for my name before they ask for a private concert."
+
+"I already know your name. It's Bayo."
+
+"You don't know my last name."
+
+"I don't need your last name. I need to hear that song again."
+
+He paused, his hand on the zipper. "The unfinished one?"
+
+"The unfinished one."
+
+He looked at me for a long moment, something unreadable passing through his eyes. Then he smiled—a real smile, not the easy grin he'd worn before—and unzipped his guitar case.
+
+"Alright," he said. "But I'm warning you. It's still not finished."
+
+"Good," I said. "I'd hate for you to run out of reasons to come back."
+
+He pulled out the guitar—the same battered acoustic, covered in stickers from places I'd never been—and settled it on his knee. He strummed once, twice, testing the tuning. Then he started to play.
+
+It was the same melody, but different. Slower. Wistful. Like it was remembering something that hadn't happened yet. He still didn't sing, just played, his fingers moving over the strings with that same ease, that same conversation I couldn't quite translate but could almost understand.
+
+When he finished, he looked up at me, and there was something vulnerable in his expression that made me want to reach out and touch his face.
+
+"It's getting better," I said.
+
+"It's still not finished."
+
+"Nothing ever is."
+
+He smiled, slow and real. "You said that last night."
+
+"I meant it last night. I mean it tonight."
+
+We sat there in the quiet, the last notes of the melody still hanging in the air like dust motes in the fluorescent light. The clock ticked toward 00:30. Gerald's torch swept past the windows.
+
+"Bayo," I said.
+
+"Yeah?"
+
+"What time is your bus tomorrow?"
+
+He looked at me, and something shifted in his expression—surprise, maybe, or hope. "I don't know," he said. "I haven't checked."
+
+"Check."
+
+"Why?"
+
+"Because I want to know what time to be here."
+
+He stared at me for a long moment. Then he pulled out his phone, and I watched his thumb move across the screen, and I felt something settle in my chest—something warm and terrifying and entirely unlike me.
+
+"The 4:35," he said. "Same as yours."
+
+"Then I'll be here."
+
+"You will?"
+
+"I will."
+
+He looked at me, and in his eyes I saw something I recognized—that same reckless hope I'd been trying to ignore since the moment I'd walked into this bus station and seen him sitting there with his terrible coffee and his unfinished song.
+
+"Good," he said. "Because I've got a new song to play for you."
+
+"What's it called?"
+
+He grinned, and it was the easy grin, but there was something underneath it now—something real. "I haven't finished writing it yet."
+
+"Then you'll have to come back tomorrow."
+
+"I will," he said. "I'll always come back."
+
+And I believed him.
+
 ---
 
 ## About This Book
