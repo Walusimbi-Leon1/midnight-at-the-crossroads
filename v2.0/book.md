@@ -436,6 +436,114 @@ He grinned, and it was the easy grin, but there was something underneath it now�
 
 And I believed him.
 
+### Chapter 4 — The Unfinished Thing
+
+At 00:47, I was still there. So was he.
+
+We'd talked for a while after the song, the kind of talk that moves in circles around the real thing, both of us circling the center and pretending we weren't. He told me about the band that had broken up six months ago, the bassist who'd moved to Berlin, the drummer who'd gotten married and become a real estate agent. "He sells houses now," Bayo said, shaking his head. "Houses. The man used to hit things with sticks for a living." I told him about the hospital, about the patient who'd woken up from surgery and immediately asked if she could get a tattoo of her own scar. "She got it," I said. "Three weeks ago. It's a snake eating its own tail." "Ouroboros," he said. "You know what that means?" "I know it's a symbol for eternity. Or cycles. Something like that." "It's also a song I never finished." "Everything's a song you never finished." "That's the curse of being a musician." He grinned. "Nothing is ever done. You just stop working on it."
+
+That was when the bus arrived.
+
+Not my bus—my bus had come and gone at 00:00, and I'd let it leave without me, which was so unlike me that I'd stopped trying to explain it to myself. This was a different bus, one of the overnight routes that stopped at this station twice a night, carrying people from one edge of the city to the other. A handful of passengers spilled out, blinking in the fluorescent light like creatures emerging from a cave. A woman with a suitcase. A man in a suit with his tie loosened. A teenager with headphones around his neck, moving to a beat only he could hear. And then, through the doors, came a face I recognized.
+
+It took me a moment to place her. She was older now, grayer, her face lined with years I hadn't been there to see. But the way she walked was the same—quick, purposeful, like she was always late for something important. She stopped at the ticket counter, said something to the clerk, and then turned and scanned the waiting area.
+
+Her eyes landed on me.
+
+"Jo," she said.
+
+"Mum."
+
+Bayo looked between us, his guitar still resting on his knee, his expression shifting from comfortable to alert. "Should I—" he started.
+
+"Stay," I said, and I didn't know if I was talking to him or to her.
+
+My mother walked over, her heels clicking on the linoleum. She was wearing a coat I hadn't seen before, a navy thing with brass buttons, and she looked exactly like the kind of woman who had her life in order, which was the kind of woman I'd never been and probably never would be. She stopped in front of me, looked at me for a long moment, then looked at Bayo.
+
+"You must be the musician," she said.
+
+"I'm Bayo. And you're the mother who left without saying goodbye."
+
+My mother's jaw tightened. I watched it happen in real time, that familiar clench, the one I'd been seeing since I was twelve years old and she'd announced she was moving to the coast "for work" and had been gone before I'd even finished asking what I was supposed to do about school.
+
+"That's a long time ago," she said.
+
+"It's not that long," I said. "It's just been a long time since anyone talked about it."
+
+Bayo set his guitar aside slowly, like he was setting down a weapon in a standoff. "I can go," he said. "I can—"
+
+"No," my mother and I said at the same time.
+
+He blinked. Sat back down. Reached for his coffee cup and held it like a shield.
+
+My mother sat down across from us, on the bench facing the windows. She didn't look at the view—there wasn't much of one, just the dark and the occasional sweep of Gerald's torch—she looked at me. Really looked at me, the way she used to when I was small and she was trying to figure out if I was lying about the broken lamp or the missing homework.
+
+"You're tired," she said.
+
+"I work nights."
+
+"I know. I know you work nights." She paused. Her hands were folded in her lap, and I noticed they were shaking. I'd never noticed her hands shaking before. "I came to find you," she said. "I've been trying for two days."
+
+"Why?"
+
+"Because your father called me."
+
+That hit me in the chest like something physical. I hadn't spoken to my father in four years, not since he'd remarried and moved to the other side of the country, not since he'd stopped calling on my birthday and started sending cards instead, and even those had stopped a year ago.
+
+"What did he want?"
+
+"He wanted to tell me you were okay." My mother's voice cracked, just slightly, on the word okay. "He said he heard from a friend of a friend that you were working at the hospital. That you were doing well. That you were—" She stopped. Pressed her lips together. Started again. "That you were alive."
+
+"I'm alive," I said. "I've been alive for a long time."
+
+"I know."
+
+"Do you?"
+
+The silence between us was heavy, weighted with things I'd never said and she'd never asked. The vending machine hummed. Gerald's torch swept past the windows. Somewhere outside, a car door slammed.
+
+Bayo cleared his throat. "I'm going to go get more coffee," he said, rising. "Anyone else want anything?"
+
+My mother looked at him—really looked at him, the way she'd looked at me—and something passed across her face. Something like understanding. "No," she said. "Thank you."
+
+He nodded, squeezed my shoulder once as he passed, and walked over to the vending machine, giving us space without leaving.
+
+My mother watched him go. Then she turned back to me. "He plays the guitar?"
+
+"He's a musician. A good one."
+
+"He's in love with you."
+
+I opened my mouth to deny it. Closed it. Something warm and terrifying was blooming in my chest, the same feeling I'd been trying to ignore since the night I first saw him sitting on this bench with his terrible coffee and his unfinished song. "He doesn't even know my last name," I said.
+
+"That doesn't matter." My mother's voice was soft now, gentler than I'd ever heard it. "I knew your father's last name for ten years before I knew his heart. The name isn't the important part."
+
+I stared at her. "When did you get wise?"
+
+"About the time I realized I'd missed your entire life." She looked down at her hands, still folded in her lap, still shaking. "I was wrong, Jo. I was so wrong, and I've been carrying that with me for so long I forgot it wasn't mine to carry anymore." She looked up at me, and there were tears in her eyes, and I realized I'd never seen my mother cry before. "I was scared," she said. "I was scared of being the kind of mother you deserved, because I didn't know how. So I ran. I've been running ever since."
+
+I sat there, the fluorescent light buzzing overhead, the clock ticking toward 1:00, the world outside the grimy windows continuing to turn. And I felt something shift inside me, something that had been locked for so long I'd forgotten it was there.
+
+"You ran," I said. "But you came back."
+
+"I came back."
+
+"Tonight."
+
+"Tonight. At midnight. To a bus station where my daughter was sitting with a musician and a guitar and a look in her eyes I haven't seen since she was a little girl." She smiled, trembling, real. "I'm not leaving again, Jo. I'm not running anymore."
+
+I didn't say anything. I couldn't. But I reached out and took her hand, and her fingers closed around mine, and it was the first time in years that I'd touched my mother and felt like I was touching someone real.
+
+Bayo came back with three cups of terrible coffee. He handed one to me, one to my mother, and kept one for himself. He sat down on the bench next to me, close enough that I could feel the warmth of his arm against mine, and he didn't say a word. He didn't need to.
+
+The clock ticked toward 1:00.
+
+The vending machine hummed.
+
+And somewhere in the distance, a train announced its arrival in that bored voice, and for the first time in a long time, I didn't feel like I was waiting for anything.
+
+I was already there.
+
 ---
 
 ## About This Book
