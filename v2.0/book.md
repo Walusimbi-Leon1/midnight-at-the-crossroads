@@ -544,6 +544,140 @@ And somewhere in the distance, a train announced its arrival in that bored voice
 
 I was already there.
 
+### Chapter 5 — The 1:00 A.M. Express
+
+The coffee was terrible. Not the usual terrible—the kind you expect from a vending machine—but a new, special terrible, like someone had brewed it in a tire and added a whisper of regret. I drank it anyway. My mother drank hers too. Bayo drank his like a man who'd developed a tolerance for bad decisions.
+
+We sat in a triangle of uncomfortable plastic chairs, the fluorescent lights buzzing their eternal complaint overhead, and for a while, nobody spoke. It wasn't the bad kind of silence. It was the kind that happens when too much has been said and the words need time to settle into the space between people.
+
+Gerald made his rounds past the window. His torch swept across the three of us, paused, moved on. He'd seen stranger things, I imagined. A bus station at midnight collects secrets the way a river collects stones.
+
+"So," Bayo said eventually, breaking the silence with the delicacy of a man stepping around glass. "You're a nurse."
+
+"I'm a nurse," my mother said. "Or I was. I retired last year. Thirty-two years in the same hospital."
+
+"Same hospital," I repeated. "You stayed in one place for thirty-two years."
+
+She looked at me, and there was something raw in her eyes. "I stayed in one place because I was afraid if I stopped moving, I'd have to think about where I'd been."
+
+"And now?"
+
+"Now I'm here." She said it simply, like that explained everything, and maybe it did. "Your father called me because he heard I was sick. He was wrong, but he was trying. He's been trying too, in his way."
+
+I thought about my father, four years and half a country away. I thought about the birthday cards that had stopped coming. I thought about how he'd called my mother—the woman he'd divorced, the woman he'd once described as "a hurricane with a handbag"—to check on me. "He never calls me."
+
+"He's scared of you," my mother said. "You're more like me than he could ever handle. And I'm more like you than either of us wants to admit."
+
+Bayo laughed, a surprised sound that escaped him before he could catch it. "Sorry," he said. "It's just—you're both so *intense*. I've never seen a mother-daughter reunion that felt like a negotiation for peace in a small country."
+
+My mother looked at him, and then, unexpectedly, she laughed. It was a rusty sound, like a door that hadn't been opened in years, but it was real. "You're good for her," she said.
+
+"He's late for everything," I said.
+
+"I'm on time for the important things," Bayo countered.
+
+"You missed our first date."
+
+"It wasn't a date. You ran away from me."
+
+"You were playing a song for someone else."
+
+"It was a song about you. I just didn't know it yet."
+
+My mother watched us banter like a spectator at a tennis match, her head moving back and forth, a small smile tugging at the corners of her mouth. "You argue like people who've known each other for years."
+
+"We've known each other for—" I did the math. "God, has it only been a week? It feels like—"
+
+"Like longer," Bayo finished. "In a good way. Like the kind of long where you forget what it was like before."
+
+The clock ticked toward 1:05. The bus board flickered, and the 1:00 A.M. Express to the coast changed from "ON TIME" to "ARRIVING."
+
+My mother looked at the board, then at me. "That's my bus."
+
+I felt the words land somewhere in my chest. "You just got here."
+
+"I know. But I'm not leaving forever. I'm going home—my home, the one on the coast—and I'm going to pack up the rest of my life, and I'm coming back. I don't know how long it'll take." She paused. "But I'll come back. I'll come back to this station if I have to. I'll sit on this bench and wait for you, the way you've been waiting."
+
+"I haven't been waiting for anything," I said, but it came out weak, and we both knew it was a lie.
+
+"You've been waiting your whole life," my mother said gently. "You just didn't know what for." She stood, smoothed down her navy coat, and looked at me with an expression I couldn't quite name. "You're stronger than I was, Jo. You're braver. You stayed. You kept showing up."
+
+"To the hospital," I said. "To a bus station. It's not exactly a life."
+
+"It's a life if you're living it," she said. "And you are. You're here, with a man who writes songs about you, at a bus station that's seen a thousand midnight stories. That's not nothing. That's everything."
+
+The announcer's voice crackled over the speaker. "Now arriving, the 1:00 A.M. Express to the coast. All passengers please proceed to Gate Two."
+
+My mother picked up her small suitcase—the same one she'd had for as long as I could remember, scuffed at the corners, held together by sheer determination—and turned to Bayo. "Take care of her."
+
+"I'll try," he said. "She's not easy to take care of. She doesn't let people."
+
+"Good." My mother smiled. "That means she trusts you."
+
+She turned to me, and before I could say anything, she pulled me into a hug. It was awkward at first—we weren't a hugging family, we were a family of doorways and departures—but then I felt her arms tighten, and I hugged her back, and I realized I couldn't remember the last time I'd hugged my mother. It might have been when I was twelve. It might have been never.
+
+"I'm sorry," she whispered into my hair. "I'm sorry for every midnight I wasn't there."
+
+"You're here now," I said, and the words came out ragged.
+
+"I'm here now."
+
+She pulled back, looked at me one more time, and then walked toward Gate Two. She didn't look back. That was her way. But this time, I didn't watch her go with the familiar ache of abandonment. I watched her go with something else—a small, stubborn hope that she would actually come back.
+
+The bus swallowed her whole. The doors hissed closed. The engine rumbled, and the 1:00 A.M. Express pulled out of the station, carrying my mother toward the coast and whatever life she was going to pack up and bring back to me.
+
+I stood there for a long moment, watching the tail lights fade into the dark.
+
+Bayo appeared beside me. He didn't say anything. He just stood there, his shoulder brushing mine, his hand finding my hand in the dim light. His fingers were warm and calloused from the guitar, and they fit around mine like they'd been made for it.
+
+"She's coming back," he said.
+
+"You don't know that."
+
+"I know people," he said. "I spend my life reading rooms. Reading audiences. Reading the way people hold themselves when they're lying and the way they hold themselves when they're telling the truth. She's telling the truth."
+
+"You barely know her."
+
+"I know you." He said it simply, like it was the most obvious thing in the world. "And she's your mother. That means she's got the same stubbornness. The same spine. The same way of leaving and the same way of coming back."
+
+I turned to look at him. The fluorescent light caught the angles of his face, the tired lines around his eyes, the way his hair stuck up on one side like he'd been running his hands through it. He looked like a man who'd been awake for too long, who'd been carrying a song around in his head for years, who'd finally found someone to sing it to.
+
+"You're a romantic," I said.
+
+"I'm a musician," he said. "Same thing, with better lyrics."
+
+I laughed. It surprised me, the sound of it—bright and real and utterly unexpected in this grimy bus station at one in the morning.
+
+"Come on," I said. "Walk me to my bus."
+
+"The next one's not until two-fifteen."
+
+"I know." I tugged his hand. "But I like the walking."
+
+We walked out of the station together, into the night air that smelled like diesel and rain and the faint, sweet possibility of something new. The city hummed around us, restless and alive, and for the first time in a long time, I felt like I was part of it.
+
+"Bayo," I said as we reached the corner.
+
+"Yeah?"
+
+"What's your last name?"
+
+He stopped. Turned to look at me. A slow grin spread across his face, the kind that reached his eyes and made them crinkle at the corners. "Okafor. Bayo Okafor. And you?"
+
+"Jo." I paused. "Just Jo. For now. I'm workshopping the rest."
+
+"Jo Okafor," he said, trying it out. "That has a nice ring to it."
+
+"Slow down," I said, but I was smiling. "We're not there yet."
+
+"We're somewhere," he said. "That's enough for me."
+
+The bus station hummed behind us. The city stretched ahead of us. And somewhere between the vending machine coffee and the 1:00 A.M. Express, I realized I wasn't waiting anymore.
+
+I was walking.
+
+And for the first time, I had someone walking beside me.
+
 ---
 
 ## About This Book
