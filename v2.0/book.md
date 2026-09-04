@@ -678,6 +678,204 @@ I was walking.
 
 And for the first time, I had someone walking beside me.
 
+### Chapter 6 — The Two-Fifteen
+
+Her name is Jo. Just Jo. "Workshopping the rest," she said, like it was a joke, but I caught the edge under it — the way people talk about becoming someone else when they've been one thing for too long. I know that edge. I've been living on it for years, in borrowed rooms and backstage corners, always a half-step from the life I meant to have.
+
+We walked. The city at 1:15 in the morning has a particular sound. Not silence — more like a held breath, the whole restless place finally exhaling. Her hand was still in mine, small and warm, and I didn't want to let go, so I didn't. She didn't seem to mind.
+
+"You never told me," she said, "what that first song was about."
+
+"What song?"
+
+"The one you were playing the night we met. The one you claimed was about me, before you knew me."
+
+I laughed. "You remember that?"
+
+"I remember everything. I'm a nurse. We're trained for details — medications, dosages, the exact second a patient's breathing changes. Apparently that extends to the lyrics of a stranger's song at a bus station at midnight."
+
+"That's a lot of storage space in one head."
+
+"Mostly anxiety," she said. "But there's room for a few things."
+
+The street curved toward the river, and the city lights scattered across the water like someone had tipped over a jar of stars. She stopped at the railing, leaned against it, looked out at the dark. I stood beside her, close enough to feel the warmth coming off her jacket — my jacket now, thin denim that wasn't doing either of us much good against the wind.
+
+"It's called 'The Timetable,'" I said.
+
+She turned. "The song?"
+
+"Yeah. I wrote it about the station. About everyone who comes and goes — the ones who miss their buses on purpose, the ones who catch them by accident. I've been working on it for three years."
+
+"Three years? That's a long time for one song."
+
+"It's not a song yet. It's a list. Every night I play, I add a verse. Every person I see gets a line. The woman with the red umbrella who always walks counter-clockwise around the lobby. The old man who sleeps in the corner booth and wakes up exactly at 4 A.M. for the first bus to the coast. The kid with the skateboard who's always sprinting for the last train and always missing it."
+
+"And me?" she asked.
+
+"You're the chorus," I said. "I just didn't know it yet."
+
+She was quiet for a moment. The river lapped at the banks below, steady and patient. A taxi idled behind us, engine a low purr. She smelled like antiseptic soap and coffee, like a twelve-hour shift and the stubborn refusal to let it beat her.
+
+"Sing it for me," she said.
+
+"What, here?"
+
+"Yes. Here. Now. The city's our audience."
+
+I looked at her. The streetlight caught the tired lines under her eyes, but there was something else there too — a cautious hope, like she was testing whether it was safe to believe in anything. I knew that look. I'd seen it in mirrors. I'd seen it in the faces of people who'd been let down enough times that they'd started letting themselves down first, just to get ahead of it.
+
+I cleared my throat. My guitar was back at the station, propped against the bench where I'd left it, but I didn't need it. This song had been living in me long enough that I could hum it in my sleep.
+
+"The first time I saw you, you were running," I sang, soft and a cappella, the notes hanging in the cold air. "Running for a bus that wasn't yours. The second time I saw you, you were laughing at something I said. The third time, you were the only person in the room who looked like they were really there."
+
+She didn't move. Her eyes were bright, catching the streetlight.
+
+"I wrote a timetable of your small departures," I sang. "The way you leave rooms before they leave you. The way you check the board like it might finally tell you where to go. But you're not going anywhere, are you? You're just waiting for someone to stay."
+
+My voice cracked on the last note, the way it always did when I meant something too much. I stopped, suddenly aware of how exposed I was, standing on a riverbank at one in the morning, singing to a woman I'd known for a week.
+
+"That's not finished," I said.
+
+"Sounded finished to me."
+
+"It needs one more verse. The resolution. I haven't figured out how it ends."
+
+She looked at me for a long moment. Then she said, "Maybe it doesn't end. Maybe it's like the station — it just keeps going. All night, all the time. The buses leave, but the station stays."
+
+"The station stays," I repeated. "I like that."
+
+"It's the only thing I've ever been sure of," she said. "That place will always be there. No matter what time it is, there's a light on, and a bench to sit on, and somebody else who's also awake, waiting for something."
+
+"Waiting for what?"
+
+"I don't know. That's the thing about the station. Everyone's waiting for something, but nobody can say what it is. They just know they'll recognize it when it shows up."
+
+I thought about that. I thought about all the nights I'd spent in that fluorescent hum, playing for strangers, watching them come and go. I thought about how I'd always assumed I was waiting for inspiration, or a record deal, or some version of success that kept receding like a mirage. But standing here, with her hand in mine, I realized I'd been wrong. I hadn't been waiting for anything. I'd been practicing.
+
+"You should come to my gig," I said. "Thursday night. There's a little bar on the south side called The Last Stop. It's a hole in the wall, but the acoustics are good, and the owner lets me play whatever I want for as long as I want."
+
+"Thursday," she said. "I work nights."
+
+"What time do you get off?"
+
+"Seven in the morning."
+
+"Then come after. I'll play until you get there. I'll just keep playing."
+
+"You can't play for six hours."
+
+"I can play for eight. I once played for nine and a half, until the owner cut the power and the crowd threw bread at me. A whole baguette. Hit me right in the forehead."
+
+She laughed, bright and sudden, a sound that cut through the cold like a match struck in a dark room. "You're ridiculous."
+
+"I'm committed. There's a difference."
+
+The wind picked up, and she shivered, pulling the denim jacket tighter around herself. The sleeves hung past her wrists, and the collar was turned up against her neck, and the sight of her in my jacket did something to my chest that I couldn't name. Something between a chord change and a held note.
+
+"You don't have to wait for me," she said quietly. "You don't know me. We've known each other for a week, and most of that was at a bus station, missing each other."
+
+"I know," I said. "I'm choosing to."
+
+"Why?"
+
+I could have given her the easy answer — fate, midnight, the universe pushing us together like two magnets that couldn't help themselves. But she was a nurse. She'd seen too much to believe in easy answers. She'd told me once, early on, that she'd held a patient's hand while they died, and the machine kept beeping, and the beeping meant nothing because the person was already gone. She knew the difference between noise and signal.
+
+"Because you're the first person who's ever made me want to be on time," I said. "And I don't even know what I'm showing up for. I just know I want to show up."
+
+She looked at me. The river behind her. The city scattered like stars. The bus station a few blocks away, still humming, still keeping its promises.
+
+"Okay," she said.
+
+"Okay what?"
+
+"Okay, I'll come to your gig. Thursday night. But if you're late, I'm leaving."
+
+"I won't be late."
+
+"You're late for everything."
+
+"I'm on time for the important things," I said. "I told you that."
+
+"You told me that," she agreed. "I still don't believe you."
+
+"You don't have to believe me. You just have to show up."
+
+She smiled, and it was the real thing — not the tired, professional smile she used at the hospital, not the guarded one she'd used with her mother. It was the smile of someone who was starting to believe in something. I wanted to be worthy of it. I wanted to be the thing she was waiting for, the thing that finally showed up on the board as "ON TIME."
+
+We walked back toward the station. The clock tower said 2:07. Eight minutes until her bus.
+
+"You know," she said as we approached the entrance, "this is the first time I've ever been early for a bus."
+
+"Maybe you're becoming a different person."
+
+"Maybe I am."
+
+"Jo," I said.
+
+She stopped. Turned.
+
+"The song," I said. "I think I know how it ends now."
+
+"Yeah?"
+
+"Yeah. It ends with someone showing up."
+
+Inside the station, the board flickered. The 2:15 A.M. to the north side read "ON TIME." The vending machine hummed. The old man in the corner booth slept, dreaming whatever old men dream, and the woman with the red umbrella circled the lobby, and somewhere in the distance a train whistle sounded like a promise.
+
+The clock ticked toward 2:15.
+
+Jo looked at the board, then back at me. Her bus was pulling in — I could see its headlights through the glass doors, cutting through the dark like a question finally getting an answer.
+
+"I have to go," she said.
+
+"I know."
+
+She didn't move. Neither did I.
+
+"Thursday," she said.
+
+"Thursday."
+
+"If you're late—"
+
+"I won't be."
+
+She took a breath. Then she stepped forward and kissed me. It was quick and warm and tasted like coffee and the cold night air, and it was the most on time I've ever been in my entire life.
+
+She pulled back, a flush in her cheeks, and said, "That's for the song."
+
+"What's the rest of the song for?"
+
+"Finish it first." She was already walking toward the gate, and she didn't look back, but she was smiling — I could see it in the set of her shoulders, the way she held herself like someone who'd finally caught the bus she'd been chasing.
+
+The doors hissed open. The bus swallowed her whole. The engine rumbled, and the 2:15 pulled out of the station, carrying her toward the north side and whatever shift was waiting for her.
+
+I stood there for a long moment, watching the tail lights fade into the dark.
+
+The board flickered. The timetable updated. Somewhere in the distance, a new destination appeared — a city I'd never heard of, a route I'd never taken.
+
+I pulled out my phone. Opened the notes app. Found the half-finished lyrics to "The Timetable" and stared at them until the words blurred.
+
+Then I wrote the final verse.
+
+*She left on the 2:15, and I stayed.*
+*The station hummed its old familiar song.*
+*I checked the board a hundred times a day*
+*For a bus that would take me where she'd gone.*
+
+*But the station doesn't move, and neither do I.*
+*We wait for the ones who leave and promise to return.*
+*And if you're reading this, I'm still keeping time.*
+*Midnight at the crossroads — that's where we'll learn.*
+
+I saved it. Looked up at the clock. 2:22.
+
+Seven minutes until I had to be somewhere else. For the first time in my life, I didn't mind being late.
+
+I had a reason to be on time on Thursday.
+
+And that was everything.
+
 ---
 
 ## About This Book
